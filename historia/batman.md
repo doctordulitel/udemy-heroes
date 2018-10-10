@@ -1,0 +1,1 @@
+V es un personaje ficticio de la serie de cómics V de Vendetta, creado por Alan Moore y David Lloyd. V es un misterioso anarquista a quien se reconoce por su máscara de Guy Fawkes y ropa oscura. Según Moore, V puede ser tanto el protagonista como el antagonista de la historia; es el lector quien decide si es un héroe que lucha por una causa justa o simplemente un loco.1​ 
